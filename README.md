@@ -1,5 +1,4 @@
-Hi,
-I am Dhruvin. I am a Master's student in Computer Science.
+Website Developer | Data Analyst | DSA | AI | Python | Entrepreneur 🎓
 
 
 ## 🌐 Socials:
